@@ -12,9 +12,9 @@ hello! i have many names, but most call me pip!
 <p align="center">
 i am a pip fictkin ^_^
 <p align="center">
-hyperfixated on south park
+demonkin & angelkin (how daft!)
 <p align="center">
-i love my friends & bf so much!
+i love my friends so much!
 </p>
 
 <p align="center">
