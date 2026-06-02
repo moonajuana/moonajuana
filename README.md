@@ -12,9 +12,9 @@ hello! i have many names, but most call me pip!
 <p align="center">
 i am a pip fictkin ^_^
 <p align="center">
-demonkin & angelkin (how daft!)
+i am 16 as of 9/28/26!
 <p align="center">
-i love my friends so much!
+i love my friends dearly!
 </p>
 
 <p align="center">
