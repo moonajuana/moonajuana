@@ -10,11 +10,11 @@
 <p align="center">
 hello! i have many names, but most call me pip!
 <p align="center">
-i am a pip fictkin ^_^
+i am a sp&hp pip fictkin ^_^
 <p align="center">
 i am 16 as of 9/28/25!
 <p align="center">
-i love my friends dearly!
+i love my friends and bf dearly!
 </p>
 
 <p align="center">
