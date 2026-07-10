@@ -1,4 +1,4 @@
-<p align="center"> every days an apple pie... ᨳ₊˚ <p></p>
+<p align="center"> angel baby, my angel baby... ᨳ₊˚ <p></p>
 <div align="center">
   
 <img width="300" height="200" alt="spazdam" src="https://files.catbox.moe/580ljh.gif" />
@@ -8,13 +8,13 @@
 <p align="center">
 𓎢𓎠𓎟 ꒰ ᧔♡᧓ ꒱ 𓎟𓎠𓎡
 <p align="center">
-hello! i have many names, but most call me pip!
+hello! i have many aliases, but most call me pip!
 <p align="center">
-i am a sp&hp pip fictkin ^_^
+i am a south park & hellpark pip fictkin ^_^
 <p align="center">
 i am 16 as of 9/28/25!
 <p align="center">
-i love my friends and bf dearly!
+i love my friends and my bf dearly!
 </p>
 
 <p align="center">
