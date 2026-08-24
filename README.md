@@ -14,7 +14,7 @@ i am a south park & hellpark pip fictkin ^_^
 <p align="center">
 i am 16 as of 9/28/25!
 <p align="center">
-i love my friends and my puppy dearly!
+i love my friends and my puppy bf dearly!
 </p>
 
 <p align="center">
